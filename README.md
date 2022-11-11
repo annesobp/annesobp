@@ -5,3 +5,4 @@
 - 🤔 I would like to become a product owner or a product manager soon! 
 - 💬 Ask me about recruitment, I do some headhunting for a living, but it will change soon enough.
 - ⚡ Fun fact: I speak French, English and Korean.
+ I plan on completing the PSPO before the year ends. 
